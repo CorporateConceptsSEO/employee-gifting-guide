@@ -2,6 +2,8 @@
 
 There is no universal answer. The [best corporate gifts for employees](https://corporate-concepts.com/best-gifts-for-employees/) depend on the company culture, the occasion, and the items people actually use every day.
 
+![Best Corporate Gifts for Employees](https://raw.githubusercontent.com/CorporateConceptsSEO/employee-gifting-guide/main/Best%20Corporate%20Gifts%20for%20Employees.jpeg)
+
 ## How Can You Check Whether a Gift Is Practical?
 Consider whether a person would genuinely use it at their workstation. This removes gifts that look attractive but are never used.
 
